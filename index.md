@@ -1,3 +1,0 @@
-# Labor Watch
-
-Coming soon
